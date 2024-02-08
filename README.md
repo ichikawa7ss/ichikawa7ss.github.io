@@ -1,0 +1,1 @@
+# ichikawa7ss.github.io
